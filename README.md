@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @firasajah
+- 👀 I’m interested in here
+- 🌱 I’m currently learning basic skills
+- 💞️ I’m looking to collaborate on with everyone
+- ⚡ Fun fact i love cat.
